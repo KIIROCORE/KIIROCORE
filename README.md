@@ -1,4 +1,10 @@
-### Hi there 👋
+# since all my general info is on my strawpage i'm just going to use this for any pony town related things i feel the need to mention
+#
+# - this should be obvious but um don't copy my skins lol, i haven't had it happen to me before but yk just in case
+# - please don't be overly sexual with me, i'm aroace and it makes me uncomfy. if i have a cosplay on i'd prefer if you don't int for shipping purposes but if you do then at least try to keep it brief. non-romantic kissing and c+h is fine unless i say otherwise
+# - if i have do not disturb on that usually just means i'm just low energy in terms of socializing, though i may interact if i feel like it. if i'm actually afk/busy/offtab/whatever i'd usually put my character to sleep or say so in my name
+# - very uncomfy with sui jokes, especially ones that involve straight up telling others to commit. also uncomfy with most forms of offensive humor in general though that may be a bit context dependent
+# - i block people on here somewhat liberally
 
 <!--
 **KIIROCORE/KIIROCORE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
