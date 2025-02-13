@@ -3,7 +3,6 @@
 - this should be obvious but um don't copy my skins lol, i haven't had it happen to me before but yk just in case
 - please don't be overly sexual with me, i'm aroace and it makes me uncomfy. if i have a cosplay on i'd prefer if you don't int for shipping purposes but if you do then at least try to keep it brief. non-romantic kissing and c+h is fine unless i say otherwise
 - if i have do not disturb on that usually just means i'm just low energy in terms of socializing, though i may interact if i feel like it. if i'm actually afk/busy/offtab/whatever i'd usually put my character to sleep or say so in my character's name
-- very uncomfy with sui jokes, especially ones that involve straight up telling others to commit. also uncomfy with most forms of offensive humor in general though that may be a bit context dependent
 - i block people on PT somewhat liberally
 
 okay that's all ^^ go to my strawpage if u want more general info about me
